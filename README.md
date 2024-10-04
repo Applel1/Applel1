@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Applel1
 - 👀 I’m interested in learning and expanding my knowledge in tech and programming
 - Use to be really into programming but had about a 5 year hiatus, and now kinda forgot how everything works :)
-- ✉️ if needing to contact me pref discord - apple2095
+- ✉️ if needing to contact me pref discord - apple2095 - dlwhite316gmail.com
